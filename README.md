@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Mkacts
 - 👀 I’m interested in Coding especially in JAVA.
 - 🌱 I’m currently learning JAVA 
-- 💞️ I’m looking to collaborate on 
+- 💞️ I’m looking to collaborate on Copy and Content writing jobs cuz hey why waste a skill that has a potential to reach the sky
 - 📫 How to reach me i am an email away imkmyemail2021@gmail.com
 
 <!---
